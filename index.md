@@ -1,2 +1,2 @@
 # Transformer
-Ein gnadenloser Kämpfer für die Gerechtigkeit, gesendet aus der fernen Zukunft von Skynet zum Wohle Aller! An ancient struggle between two Cybertronian races, the heroic Autobots and the evil Decepticons, comes to Earth, with a clue to the ultimate power held by a teenager.
+Ein gnadenloser Kaempfer für die Gerechtigkeit, gesendet aus der fernen Zukunft von Skynet zum Wohle Aller! An ancient struggle between two Cybertronian races, the heroic Autobots and the evil Decepticons, comes to Earth, with a clue to the ultimate power held by a teenager.
